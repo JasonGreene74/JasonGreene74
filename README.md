@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating, building and modifying the world around me.  
 - 🌱 I’m currently learning software engineering.
 - 💞️ I’m looking to collaborate on anything that will improve my skills, rn I have none.
-- 📫 How to reach me jasona.greene74@Gmail.com
+- 📫 How to reach me greenmonstah@msn.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a master automotive technician and business owner.
 
