@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JasonGreene74
+- 👋 Hi, I’m JasonGreene74
 - 👀 I’m interested in creating, building and modifying the world around me.  
 - 🌱 I’m currently learning software engineering.
 - 💞️ I’m looking to collaborate on anything that will improve my skills, rn I have none.
